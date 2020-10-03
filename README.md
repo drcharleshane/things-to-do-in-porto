@@ -1,1 +1,11 @@
-# things-to-do-in-porto
+# Porto Portugal
+
+Visitors to Portugal will find a visit to the city of Porto to be quite exciting. Here you will be able to look at a number of interesting sights which can take your breath away. You will find the city of Porto is the capital of the Norte region. As you explore this city among the various sights you will have the chance of seeing is that of the historic centre of Porto. This centre has been placed on the UNESCO World Heritage Site. An interesting fact that you may not have been aware of is the linking of the Port wine with that of the city of [Porto](https://triokids.com.sg//). Here you will find that port wine is made and distributed to the rest of the world.
+
+The history of Porto can be traced back as far as the Celtic and Proto-Celtic times. Among some of the historical artifacts that you might see here are Roman artifacts as well. Today you will see a city which is both cosmopolitan and traditional in nature. You will find among the numerous sights that you can see hotels which are suited for various budgets and holidays. There are a number of interesting shopping and dining opportunities for you to enjoy while you are in Porto.
+
+For lovers of tripe you will find that in Porto you can enjoy a delicious tasting meal of tripe as it is an important dish culture wise. However you will find there are a number of delicious tasting foods that you can try while you are holidaying in Porto. Having satisfied your craving for authentic Portuguese food you might want to see about visiting some of the interesting places of attractions that you will be able to find.
+
+Of these places of interest you might enjoy a visit to the Museu de David. Here you will find a museum which traces the origins of people who have the name David. This hunt for the origins of David will take you from the biblical times all the way to the present Davids. You will also find a fascinating explanation about this name and its seeming popularity. Interestingly enough individuals who have the name David and can prove this fact are allowed to enter the museum for free.
+
+Another interesting museum that you should visit while you are in Porto is that of the Fundação de Serralves. This is a contemporary museum which was designed by Álvaro Siza who was a famous architect of Porto. In this museum you will be able to look at the various contemporary art exhibits and statues.
